@@ -1,5 +1,5 @@
 ### Hello welcome 😃
-My name Nael Bernardo 🧔
+My name is Nael Bernardo 🧔
 
 
 
