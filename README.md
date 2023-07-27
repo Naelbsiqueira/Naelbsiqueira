@@ -9,4 +9,4 @@ My name is Nael Bernardo 🧔
 - ✍ I’m currently learning Python, HTML, JavaScript, Database, cloud computing
 - 💪 I'm wanting to collaborate in several computing areas.
 - 🤔 I’m looking for help with ...
-- 💬 Ask me about naelbsiqueira@hotmail.com or +351 927341511
+- 💬 Ask me about naelbsiqueira@hotmail.com or +55 61 981757939
